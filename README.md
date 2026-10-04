@@ -1,0 +1,1 @@
+# Takahashi_photos
